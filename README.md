@@ -1,3 +1,2 @@
 # 1Lab
-KU)
-вапвырва
+Kngkjdn.ghdt
